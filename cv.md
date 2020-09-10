@@ -3,7 +3,7 @@
 ##  Contacts
 *   email: turowskaja@gmail.com
 *   skype: turon4ik
-*   telegram: +375293037305
+*   telegram: @TurovskayaYuliya
 
 ##  Summary
     I want to change my life, profession and constantly develop.
